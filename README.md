@@ -1,0 +1,1 @@
+# Tryb-pocz-tkuj-cy
